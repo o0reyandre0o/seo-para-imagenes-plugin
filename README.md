@@ -1,0 +1,1 @@
+# seo-para-imagenes-plugin
